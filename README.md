@@ -1,1 +1,1 @@
-# Dilost67.gitub.io
+# Dilost67.github.io
